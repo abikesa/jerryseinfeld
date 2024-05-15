@@ -1,3 +1,5 @@
+*Not a lot of life [makes sense](https://www.youtube.com/watch?v=76QV2SrSqgo) to be able to survive it without humor - Jerry Seinfeld*
+
 - Ship
 - [Deploy](https://github.com/abikesa/quickdeploy)
 - Telecommute
