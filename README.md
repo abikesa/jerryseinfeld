@@ -25,6 +25,6 @@
 4. [Chromatic](https://en.wikipedia.org/wiki/No_Country_for_Old_Men): likelihood/precision
 ### Competition
 ##### ♭9,♯9,♯11,♭13 
-5. Temperament/[Heretical](https://www.gutenberg.org/cache/epub/27458/pg27458-images.html): `Pure` [torture](https://www.youtube.com/watch?v=76QV2SrSqgo), and are all $1000$ % worth it!
+5. Temperament/[Heretical](https://www.gutenberg.org/cache/epub/27458/pg27458-images.html): `Pure` [torture](https://www.youtube.com/watch?v=76QV2SrSqgo), and are all USD 1000 worth it!
 6. [Expression](https://www.youtube.com/watch?v=e4Vp7Fpv5BI)/[Aggressive](https://onlinelibrary.wiley.com/doi/full/10.1111/j.1600-6143.2011.03789.x): i.e., work, exercize, relationships
  
